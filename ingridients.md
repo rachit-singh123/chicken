@@ -1,0 +1,1 @@
+250gm chicken, 1tsp garlic, 1tsp ginger, 1tsp red chilli powder, 1tsp turmeric powder, bayleaf, 2-3 cardamom, 1tsp cumin seeds, 2-3 onions(finely choped), 1tsp hot masala/spices. 3tsp oil.
